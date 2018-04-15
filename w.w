@@ -1,0 +1,12 @@
+dear
+toy
+whispering
+rabbit
+leather
+spicy
+car
+flowers
+peck
+possessive
+breezy
+untidy
